@@ -1,1 +1,1 @@
-# ooad_v1
+ko drugom jamu kopa sam u nju pada
